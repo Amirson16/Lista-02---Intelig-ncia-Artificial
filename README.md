@@ -1,0 +1,1 @@
+# Lista-02---Intelig-ncia-Artificial
